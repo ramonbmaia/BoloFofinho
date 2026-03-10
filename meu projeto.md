@@ -5,3 +5,4 @@ Separe os ingredientes:
 1 xícara de açúcar
 1/2 xícara de manteiga
 1 xícara de farinha de trigo
+1/2 xícara de leite
