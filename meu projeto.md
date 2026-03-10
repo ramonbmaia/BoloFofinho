@@ -19,3 +19,5 @@ Misture os ingredientes secos e líquidos: Adicione a farinha de trigo peneirada
 2
 Incorpore as claras em neve: Com delicadeza, incorpore as claras em neve à massa, utilizando uma espátula e fazendo movimentos suaves de baixo para cima para não perder a leveza. 
 2
+Asse o bolo: Despeje a massa em uma forma untada e enfarinhada. Leve ao forno preaquecido a 180°C e asse por cerca de 30 a 40 minutos, ou até que um palito inserido no centro saia limpo. 
+2
