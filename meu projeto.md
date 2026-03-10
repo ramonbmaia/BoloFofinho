@@ -23,3 +23,8 @@ Asse o bolo: Despeje a massa em uma forma untada e enfarinhada. Leve ao forno pr
 2
 Finalize: Deixe o bolo esfriar um pouco antes de desenformar. Você pode servir simples ou com uma cobertura de sua preferência, como chocolate ou frutas. 
 1
+
+Dicas
+
+Para um sabor especial, você pode substituir o leite por suco de laranja ou adicionar raspas de limão à massa. 
+1
