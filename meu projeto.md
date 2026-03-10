@@ -17,3 +17,5 @@ Prepare a massa: Em outra tigela, bata a manteiga com o açúcar até formar um 
 1
 Misture os ingredientes secos e líquidos: Adicione a farinha de trigo peneirada ao creme de gemas, alternando com o leite, até formar uma massa homogênea. Se desejar, adicione a essência de baunilha. 
 2
+Incorpore as claras em neve: Com delicadeza, incorpore as claras em neve à massa, utilizando uma espátula e fazendo movimentos suaves de baixo para cima para não perder a leveza. 
+2
