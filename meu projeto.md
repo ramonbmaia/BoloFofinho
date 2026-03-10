@@ -8,3 +8,8 @@ Separe os ingredientes:
 1/2 xícara de leite
 1 colher de sopa de fermento em pó
 1 colher de chá de essência de baunilha (opcional)
+
+Modo de preparo?
+
+Bata as claras em neve: Em uma tigela limpa e seca, bata as claras até que fiquem em ponto firme. Reserve. 
+2
