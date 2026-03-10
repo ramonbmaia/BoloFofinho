@@ -21,3 +21,5 @@ Incorpore as claras em neve: Com delicadeza, incorpore as claras em neve à mass
 2
 Asse o bolo: Despeje a massa em uma forma untada e enfarinhada. Leve ao forno preaquecido a 180°C e asse por cerca de 30 a 40 minutos, ou até que um palito inserido no centro saia limpo. 
 2
+Finalize: Deixe o bolo esfriar um pouco antes de desenformar. Você pode servir simples ou com uma cobertura de sua preferência, como chocolate ou frutas. 
+1
