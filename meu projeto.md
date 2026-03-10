@@ -13,3 +13,5 @@ Modo de preparo?
 
 Bata as claras em neve: Em uma tigela limpa e seca, bata as claras até que fiquem em ponto firme. Reserve. 
 2
+Prepare a massa: Em outra tigela, bata a manteiga com o açúcar até formar um creme claro e fofo. Adicione as gemas, uma a uma, e continue batendo até incorporar bem. 
+1
