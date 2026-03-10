@@ -28,3 +28,5 @@ Dicas
 
 Para um sabor especial, você pode substituir o leite por suco de laranja ou adicionar raspas de limão à massa. 
 1
+Certifique-se de que as claras estejam em uma tigela completamente limpa e seca para obter o melhor resultado ao bater. 
+1
